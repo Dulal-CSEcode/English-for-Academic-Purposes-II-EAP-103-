@@ -3,7 +3,7 @@
 <br />  
 Welcome to the English for Academic Purposes II (EAP-103) repository. This repository contains course materials, assignments, and resources designed to improve your academic English skills.  
 <br />  
-Check out the playlist now and start your learning journey: [English for Academic Purposes II YouTube Playlist Link : ](https://youtube.com/playlist?list=PLEc-WcPXUsjsm4_JTG3Pvc7wgva-cx3yQ&si=gipLEXV_A_A8tfdd)
+Check out the playlist now and start your learning journey: [English for Academic Purposes II YouTube Playlist Link : ](https://youtube.com/playlist?list=PLEc-WcPXUsjue9VQAomiGG3S8LoYEloqt&si=36IqstfexcjOwT75)
 **Happy Learning!**
 <br />
 <img/>
