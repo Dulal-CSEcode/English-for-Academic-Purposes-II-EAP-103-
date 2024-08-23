@@ -8,7 +8,7 @@ Check out the playlist now and start your learning journey: [English for Academi
 <br />
 <img/>
 
-![English for Academic Purposes](eap103.PNG)
+![English for Academic Purposes](eap103banner.PNG)
   
 <br />  
 
